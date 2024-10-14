@@ -1,16 +1,27 @@
-## Hi there 👋
+↓↓↓最/新/观/看/入/口↓↓↓
 
-<!--
-**rugwy/rugwy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+哪有情敌会这么毫无保留地信任对方，还这么了解对方的？
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+而沐斓心中有着诸多疑惑，但他毕竟不是沙发上八卦魂已经在熊熊燃烧的周夏，让他特意打听叶厉廷跟宰序之间的事情，那属实有些难为他。
+
+他点头说：“那行，一会儿见。”
+
+两人刚乘电梯下楼，就碰上了要回去的薛凌和楼棣。
+
+薛凌：“廷少……”
+
+叶厉廷说：“留在酒店。”
+
+薛凌：“是！”
+
+楼棣则看向沐斓，“沐哥，要回别墅？我跟你一起吧。”
+
+沐斓想了下，点了头。
+
+不介意跟叶厉廷同行，那楼棣心里多少应该是看开一些了，这样也好，可以免去很多麻烦。
+
+……
+http://www.6s7n.lol
+“夜少，那女的走了。”
